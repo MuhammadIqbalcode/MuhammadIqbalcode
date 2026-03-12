@@ -24,7 +24,7 @@ I am a results-driven **Senior Machine Learning Engineer** based in Jakarta, Ind
 ### 📫 Connect with Me
 
 - **LinkedIn:** [muhammad-iqbal7](https://www.linkedin.com/in/muhammad-iqbal7/)
-- **Location:** Jakarta, Indonesia 🇮🇩
+- **Location:** Lahore, Punjab, Pakistan
 
 ---
 
